@@ -1,4 +1,4 @@
-- Me chamo Thyago Henryck Bertolotti Pereira
+- Eu me chamo Thyago Henryck Bertolotti Pereira
   
 - Eu gosto de jogar vôlei nos finais de semana
 
